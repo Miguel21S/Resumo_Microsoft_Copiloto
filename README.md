@@ -1,0 +1,1 @@
+# Resumo_Microsoft_Copiloto
